@@ -1,1 +1,1 @@
-# Kyrsovaya-Rabota
+# Курсовая работа
